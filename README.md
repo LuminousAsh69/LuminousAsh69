@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LuminousAsh69
 - 👀 I’m interested in making real world projects 
 - 🌱 I’m currently learning about world
-- 💞️ I’m looking to collaborate on projects 
+- 💞️ I’m looking to collaborate 🤔🤤 
 - 📫 How to reach me ramanvashisth584@gmail.com
 
 <!---
